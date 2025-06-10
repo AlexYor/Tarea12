@@ -1,29 +1,21 @@
-# 🧠 README.md – Cuidar tu mente, cuidar tu camino 💆‍♂️🌱
+# ¿Estoy más cerca de mi propósito? 🧭💭
 
-## 🔦 Parte 1: Reconociendo señales
+## Parte 1: Diario de transformación 🪞
 
-😮‍💨 **¿Cuáles son las primeras señales de que estás llegando a tu límite mental o emocional?**  
-Cuando empiezo a sentirme mentalmente saturado, me cuesta concentrarme, me irrito fácilmente y me aíslo. También dejo de disfrutar cosas pequeñas que normalmente me gustan, como escuchar música o dibujar.
+Al iniciar este ciclo, me sentía inseguro y con miedo al fracaso. Tenía muchas dudas sobre mis capacidades y temía no cumplir mis metas personales y profesionales. Sentía ansiedad y una constante presión por avanzar rápido.
 
-🧠 **¿Qué prácticas (aunque pequeñas) te han ayudado a sentirte mejor últimamente?**  
-Salir a caminar sin celular, escribir en mi diario aunque sea unas líneas, y hablar con un amigo cercano. A veces también me ayuda cerrar los ojos y respirar profundo durante un par de minutos.
+Con el tiempo, he aprendido a ser más paciente y a aceptar que el crecimiento no es lineal. Mi forma de pensar cambió; ahora veo los retos como oportunidades y no como obstáculos. En mis relaciones, aprendí a comunicarme mejor y a expresar mis ideas con más confianza.
 
-🔁 **¿Cómo afecta tu bienestar emocional a tu desempeño en clases o proyectos?**  
-Muchísimo. Cuando me siento bien emocionalmente, soy más creativo, participo más y me organizo mejor. En cambio, cuando estoy estresado, procrastino, me frustro rápido y dudo de mí mismo constantemente.
+Lo más valioso que aprendí fue que está bien equivocarse y que cada error es una oportunidad para mejorar. Hoy me siento más segur@ y motivad@, y definitivamente estoy más cerca de lo que quiero ser y lograr.
 
 ---
 
-## 💡 Parte 2: Mini plan de autocuidado emocional
+## Parte 2: Mi línea del tiempo emocional 📸
 
-📌 **Alerta emocional más frecuente que quiero atender:**  
-Agotamiento mental y sensación de estar siempre atrasado.
-
-🌈 **Acción sencilla de bienestar que implementaré esta semana:**  
-Desconectarme 15 minutos después de clases para estirarme, escuchar música y respirar.
-
-🧭 **Recordatorio que me diré cuando sienta estrés:**  
-🎧 *“Un paso a la vez. Estoy haciendo lo mejor que puedo, y eso es suficiente.”*
-
----
-
-💬 *Este es un compromiso conmigo mismo. Porque cuidar mi mente también es avanzar en mi camino.* 🌿
+| Hito          | Qué ocurrió                    | Cómo me sentí           | Qué aprendí/reafirmé                 |
+|---------------|-------------------------------|------------------------|------------------------------------|
+| Semana 1      | Inicio del ciclo               | Ansiedad y dudas       | La importancia de la paciencia     |
+| Semana 3      | Primer reto difícil            | Frustración            | Que puedo superar obstáculos       |
+| Semana 6      | Recibí retroalimentación       | Motivación             | Valor del aprendizaje continuo      |
+| Semana 9      | Momento de reflexión personal  | Confusión y esperanza  | Aceptar errores para crecer         |
+| Semana 13     | Finalización del ciclo         | Satisfacción y orgullo | Estoy en camino hacia mi propósito  |
