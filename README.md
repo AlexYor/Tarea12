@@ -1,21 +1,13 @@
-# ¿Estoy más cerca de mi propósito? 🧭💭
+# 📝 Cuerpo en Movimiento, Código Consciente 🏀💻
 
-## Parte 1: Diario de transformación 🪞
+## 🧘‍♀️ Parte 1: Escuchando a mi cuerpo mientras aprendo
 
-Al iniciar este ciclo, me sentía inseguro y con miedo al fracaso. Tenía muchas dudas sobre mis capacidades y temía no cumplir mis metas personales y profesionales. Sentía ansiedad y una constante presión por avanzar rápido.
+Durante la actividad física, jugar basketball por una hora me hizo sentir activo y energizado. Mi cuerpo se sintió más ligero y mi mente más despejada después de moverme. Noté que mi concentración mejoró y la fatiga acumulada por estar mucho tiempo sentado disminuyó. Sin embargo, cuando estudio por largos periodos sin pausas, siento tensión en los hombros y la espalda baja. Para evitar esto, quiero integrar más momentos de movimiento, especialmente actividades que disfruto como el basketball, para mantenerme enfocado y saludable.
 
-Con el tiempo, he aprendido a ser más paciente y a aceptar que el crecimiento no es lineal. Mi forma de pensar cambió; ahora veo los retos como oportunidades y no como obstáculos. En mis relaciones, aprendí a comunicarme mejor y a expresar mis ideas con más confianza.
+## 🚀 Parte 2: Plan personal de bienestar físico
 
-Lo más valioso que aprendí fue que está bien equivocarse y que cada error es una oportunidad para mejorar. Hoy me siento más segur@ y motivad@, y definitivamente estoy más cerca de lo que quiero ser y lograr.
+✅ Actividad: Jugar basketball durante 1 hora  
+💡 Razón: Mantenerme activo, mejorar mi coordinación y tener más energía para estudiar y programar  
+📅 Horario: Martes y jueves por la tarde, después de clases
 
----
-
-## Parte 2: Mi línea del tiempo emocional 📸
-
-| Hito          | Qué ocurrió                    | Cómo me sentí           | Qué aprendí/reafirmé                 |
-|---------------|-------------------------------|------------------------|------------------------------------|
-| Semana 1      | Inicio del ciclo               | Ansiedad y dudas       | La importancia de la paciencia     |
-| Semana 3      | Primer reto difícil            | Frustración            | Que puedo superar obstáculos       |
-| Semana 6      | Recibí retroalimentación       | Motivación             | Valor del aprendizaje continuo      |
-| Semana 9      | Momento de reflexión personal  | Confusión y esperanza  | Aceptar errores para crecer         |
-| Semana 13     | Finalización del ciclo         | Satisfacción y orgullo | Estoy en camino hacia mi propósito  |
+Este plan me ayudará a equilibrar mi bienestar físico y mental para ser un mejor estudiante y disfrutar más mi aprendizaje. ¡Con el cuerpo en movimiento, el código fluye mejor! 🏀✨
